@@ -1,1 +1,1 @@
-# subgiare.vn
+# subgiare.com
